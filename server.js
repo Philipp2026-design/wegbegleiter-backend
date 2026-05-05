@@ -12,13 +12,7 @@ const app = express();
 const PORT = process.env.PORT || 3000;
 
 // ── MIDDLEWARE ──
-app.use(cors({
-  origin: [
-    'https://philipp-neugebauer.com',
-    'http://localhost:8080',
-    'http://localhost:3000'
-  ]
-}));
+app.use(cors()); // Alle Origins erlaubt
 app.use(express.json());
 
 // ── ANTHROPIC CLIENT ──
