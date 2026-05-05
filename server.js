@@ -88,7 +88,7 @@ Bitte ruf jetzt die Telefonseelsorge an:
 📞 0800 111 0 111 – kostenlos, rund um die Uhr, anonym.
 
 Philipp ist auch persönlich für dich da:
-💙 0176 32027096
+💙 0160 111 3400
 
 Du musst das nicht alleine tragen.`;
 
@@ -165,7 +165,7 @@ app.post('/chat', async (req, res) => {
     console.error('Claude API Fehler:', error.message);
     res.status(500).json({
       error: 'API-Fehler',
-      reply: 'Im Moment bin ich nicht erreichbar. Philipp hilft dir direkt weiter:\n📞 0176 32027096\n✉️ kontakt@philipp-neugebauer.com'
+      reply: 'Im Moment bin ich nicht erreichbar. Philipp hilft dir direkt weiter:\n📞 0160 111 3400\n✉️ kontakt@philipp-neugebauer.com'
     });
   }
 });
