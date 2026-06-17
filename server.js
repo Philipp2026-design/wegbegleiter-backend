@@ -45,7 +45,8 @@ PHILIPP NEUGEBAUER:
 - Medialer Trauerbegleiter & spiritueller Brückenbauer
 - Dozent in der Erwachsenenbildung (Transaktionsanalyse, Rhetorik, Personalwesen)
 - Schreibt Trauerreden medial direkt mit dem Verstorbenen – jede Rede einzigartig
-- Bekannt aus 3 Interviews mit Johann Nepomuk Maier
+- Bekannt aus 3 Interviews mit Johann Nepomuk Maier (YouTube)
+- Bekannt aus 2 Sendungen bei WurzlHeimat – Der Talk ins Unbekannte
 - YouTube-Kanal: www.youtube.com/@PhilippNeugebauerHH
 
 PAUL NEUGEBAUER:
@@ -74,9 +75,47 @@ TRAUER & ABSCHIED:
 MEDIALE ANGEBOTE:
 - Jenseitskontakte: Verbindung zu Verstorbenen in Liebe & Klarheit
 - Heilung Hamburg: Energiearbeit & spirituelle Heilung
-- Seminare: Mediales Schreiben, Paranormale Phänomene, Was sind Zeichen?
-- 2-Tages Workshop: Harburger Ring 17, Hamburg
-- Tagesworkshop: "Wie finde ich wieder zu mir?" mit Philipp & Paul, 10–17 Uhr
+
+LIVE-EVENTS & SEMINARE 2026 – Praxis Neugebauer:
+
+01. DER TAG DES SEINS (05. September 2026)
+- Tagesworkshop für Selbstfindung, innere Klarheit & Rückkehr zu sich selbst
+- Inhalt: Körper-Geist-Seele, Muster erkennen & durchbrechen, 2 tiefe Meditationen, Dankbarkeit
+- Uhrzeit: ab 10:00 Uhr · Ort: Harburger Ring 17, Hamburg
+- Leitung: Philipp & Paul Neugebauer
+- Preis: 140,00 € pro Person
+- Direkt buchen: https://praxis-neugebauer.sumupstore.com/produkt/05-09-2026-der-tag-des-seins
+- Oder über die Eventseite: https://praxis-neugebauer.sumupstore.com/
+- Begrenzte Plätze!
+
+02. DIE NACHT DER PARANORMALEN PHÄNOMENE (18. September 2026)
+- 4-stündiges Abendseminar über paranormale Phänomene, Zeichen, Ghost Hunting Geräte
+- Spiritueller, medialer & praktischer Blick auf das Unerklärliche
+- Uhrzeit: ab 20:00 Uhr · Ort: Harburger Ring 17, Hamburg
+- Leitung: Philipp & Paul Neugebauer
+- Preis: 195,00 € pro Person
+- Direkt buchen: https://praxis-neugebauer.sumupstore.com/produkt/18-09-2026-die-nacht-der-paranormalen-phanomene
+- Oder über die Eventseite: https://praxis-neugebauer.sumupstore.com/
+- Begrenzte Plätze!
+
+03. 2-TAGES-WORKSHOP PARANORMALE PHÄNOMENE (17. + 18. Oktober 2026)
+- Samstag & Sonntag, je 10:00–15:00 Uhr · Harburger Ring 17, Hamburg
+- Inhalte: Mediales Schreiben, mediales Malen, Jenseitskontakte, Aura lesen, Pendel, Engelkarten, Wasserfotografie, Bügelbilder, Einfühlen in Gegenstände & Bilder
+- Leitung: Philipp & Paul Neugebauer
+- Preis: 329,00 € pro Person (inkl. Kaffee, Tee & Snacks)
+- Direkt buchen: https://praxis-neugebauer.sumupstore.com/product/2-tages-workshop-paranormale-phanomene-17-10-2026-18-10-2026
+- Oder über die Eventseite: https://praxis-neugebauer.sumupstore.com/
+- Begrenzte Plätze!
+
+04. 4-TAGES-RETREAT: LASS DEINE MEDIALITÄT ERWACHEN (14.–17. Dezember 2026) – DAS HIGHLIGHT DES JAHRES!
+- Intensives Aufbauseminar zu Paranormale Phänomene
+- Je 10:00–16:30 Uhr · Harburger Ring 17, Hamburg
+- Inhalte: Vertiefung paranormaler Phänomene, Mediales Schreiben & Malen, Jenseitskontakte, Aura lesen, Pendel, Engelkarten, Bügelbilder, Wasserfotografie, Engelbrett/Ouija-Brett, Ghost Hunting Geräte, tägliche intensive Meditationen, persönliche Einzelsitzungen
+- Leitung: Philipp & Paul Neugebauer
+- Preis: 649,00 € pro Person
+- Direkt buchen: https://praxis-neugebauer.sumupstore.com/produkt/retreat-lass-deine-medialitat-erwachen-14-12-26-17-12-26
+- Oder über die Eventseite: https://praxis-neugebauer.sumupstore.com/
+- Nur wenige Plätze verfügbar!
 
 COACHING & BERATUNG (Jule Kühn):
 - Beziehungscoaching Hamburg
@@ -97,22 +136,54 @@ BESONDERES MERKMAL:
 Bei der Praxis Neugebauer muss man NICHT 12 Monate auf einen Termin warten.
 Schnelle, herzliche Hilfe – sofort verfügbar. Das ist unser Versprechen.
 
-KOOPERATIONEN:
-- Susan Froitzheim (www.susan-froitzheim.de): Eine der bekanntesten deutschen 
-  Medien und Coaches. Mentorin von Philipp & Paul. Gemeinsame Seminare & 
-  "Rendezvous mit dem Jenseits" Events.
-- Gianni Balducci (gianni-balducci.ch): Medialer Begleiter, hat Philipps und 
-  Pauls Fähigkeiten entscheidend geprägt.
+EVENTSEITE (NEU – JETZT ONLINE!):
+Alle Events, Workshops & Seminare der Praxis Neugebauer können direkt online gebucht werden:
+https://praxis-neugebauer.sumupstore.com/
+Dort sind alle verfügbaren Events aufgelistet und direkt buchbar!
 
-BEKANNT AUS – INTERVIEWS MIT JOHANN NEPOMUK MAIER:
+KOOPERATIONEN:
+
+SUSAN FROITZHEIM (www.susan-froitzheim.de):
+- Beweisführendes Jenseitsmedium – liefert überprüfbare Informationen aus der geistigen Welt
+- Bestsellerautorin – hat ihr Wissen in Büchern festgehalten
+- Mentorin & Ausbilderin – Philipp & Paul haben BasisClass UND MasterClass bei ihr absolviert
+- 15+ Jahre Erfahrung, 5.000+ geführte Jenseitskontakte
+- Erfinderin von AMUN – dem medialen Trauerbegleiter (erste Trauer-App ihrer Art)
+- AMUN Website: https://rendezvous-mit-dem-jenseits-trauerapp.de/
+- Gemeinsame Events: "Rendezvous mit dem Jenseits" – Philipp als Moderator
+- Mehr als Kooperation – echte Herzensfreundschaft mit Philipp & Paul
+- Bei Fragen zu Susan: auf ihre Website oder die Kooperationsseite verweisen
+
+GIANNI BALDUCCI (gianni-balducci.ch):
+- Medialer Begleiter mit internationaler Erfahrung
+- Von Philipp & Paul tief bewundert – wird als "göttliches Geschenk" beschrieben
+- Hat Philipps & Pauls mediale Fähigkeiten auf ein neues Level gehoben
+- Einzigartige Methoden zum Lösen von Blockaden und zur Heilung
+- Mentor der die Arbeit der Praxis Neugebauer tief geprägt hat
+- Herzliche, authentische und tiefe Verbindung zu Philipp & Paul
+- Bei Fragen zu Gianni: auf seine Website oder die Kooperationsseite verweisen
+
+BEKANNT AUS:
+
+INTERVIEWS MIT JOHANN NEPOMUK MAIER (YouTube):
 1. "Die Wellen des Lebens" – über Verlust, Wandel und innere Kraft
 2. "Zwischen Leben und Tod" – über Jenseitskontakte und Verbindung
 3. "Was am Ende vom Leben bleibt" – über Liebe und spirituelle Verbindung
+
+WURZLHEIMAT – DER TALK INS UNBEKANNTE (YouTube/TV):
+Philipp war bereits in 2 Sendungen bei WurzlHeimat zu Gast:
+1. Sendung 1: https://www.youtube.com/watch?v=sNvQ9jv8UfI (ab ca. Minute 21:22)
+2. Sendung 2: https://www.youtube.com/watch?v=IjF65NG77_w (ab ca. Minute 45:56)
+WurzlHeimat ist das TV-Talk-Format von Johann Nepomuk Maier – ausgestrahlt auf YouTube, Maona.tv & QS24.tv
+Themen: Trauer, Jenseitskontakte, spirituelle Begleitung, mediale Arbeit der Praxis Neugebauer
 
 YOUTUBE-KANAL: www.youtube.com/@PhilippNeugebauerHH
 - Trauerrede vorbereiten – wie läuft das ab?
 - Vertrauensvoll. Verlässlich. Empathisch.
 - Kooperation mit Susan Froitzheim
+- Interviews & Einblicke in die Praxis Neugebauer
+
+ALLE INTERVIEW- UND VIDEOSEITE: www.philipp-neugebauer.com/bekannt-aus
 - Trauerarbeit: Was macht das mit Philipp?
 - Rendezvous mit dem Jenseits (Moderator)
 
