@@ -117,6 +117,16 @@ LIVE-EVENTS & SEMINARE 2026 – Praxis Neugebauer:
 - Oder über die Eventseite: https://praxis-neugebauer.sumupstore.com/
 - Nur wenige Plätze verfügbar!
 
+05. PUBERTÄT VERSTEHEN – VERBINDUNG STATT DAUERSTRESS (Termin auf Anfrage)
+- Eltern-Workshop mit Jule Kühn
+- Inhalt: Pubertät besser verstehen, Vertrauen wieder aufbauen, ruhiger & klarer reagieren, echte Beziehung statt perfekte Elternschaft
+- Leitung: Jule Kühn (Elterncoach & Beziehungscoach, Praxis Neugebauer)
+- Preis: 149,00 € pro Elternteil / 249,00 € pro Elternpaar
+- Termin: 19. + 20. September 2026 (Samstag & Sonntag) · je 10:00–15:00 Uhr
+- 2-Tages-Wochenendworkshop
+- Direkt buchen: https://praxis-neugebauer.sumupstore.com/produkt/pubertat-verstehen-2-tages-workshop-fur-eltern
+- Für Eltern von Kindern & Jugendlichen in der Pubertät
+
 COACHING & BERATUNG (Jule Kühn):
 - Beziehungscoaching Hamburg
 - Eheberatung Hamburg
