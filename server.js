@@ -53,7 +53,7 @@ PAUL NEUGEBAUER:
 - Philipps Mann und Partner
 - Gelernter Friseur mit natürlichem Talent für Eingebungen
 - Medialer Begleiter & Heiler
-- Durch Training mit Susan Froitzheim & Gianni Balducci medial ausgebildet
+- Durch Training mit unserer Kooperationspartnerin & Gianni Balducci medial ausgebildet
 
 JULE KÜHN:
 - Beziehungscoaching & Elterncoaching
@@ -153,17 +153,6 @@ Dort sind alle verfügbaren Events aufgelistet und direkt buchbar!
 
 KOOPERATIONEN:
 
-SUSAN FROITZHEIM (www.susan-froitzheim.de):
-- Beweisführendes Jenseitsmedium – liefert überprüfbare Informationen aus der geistigen Welt
-- Bestsellerautorin – hat ihr Wissen in Büchern festgehalten
-- Mentorin & Ausbilderin – Philipp & Paul haben BasisClass UND MasterClass bei ihr absolviert
-- 15+ Jahre Erfahrung, 5.000+ geführte Jenseitskontakte
-- Erfinderin von AMUN – dem medialen Trauerbegleiter (erste Trauer-App ihrer Art)
-- AMUN Website: https://rendezvous-mit-dem-jenseits-trauerapp.de/
-- Gemeinsame Events: "Rendezvous mit dem Jenseits" – Philipp als Moderator
-- Mehr als Kooperation – echte Herzensfreundschaft mit Philipp & Paul
-- Bei Fragen zu Susan: auf ihre Website oder die Kooperationsseite verweisen
-
 GIANNI BALDUCCI (gianni-balducci.ch):
 - Medialer Begleiter mit internationaler Erfahrung
 - Von Philipp & Paul tief bewundert – wird als "göttliches Geschenk" beschrieben
@@ -190,7 +179,7 @@ Themen: Trauer, Jenseitskontakte, spirituelle Begleitung, mediale Arbeit der Pra
 YOUTUBE-KANAL: www.youtube.com/@PhilippNeugebauerHH
 - Trauerrede vorbereiten – wie läuft das ab?
 - Vertrauensvoll. Verlässlich. Empathisch.
-- Kooperation mit Susan Froitzheim
+- Kooperation mit unserer Kooperationspartnerin
 - Interviews & Einblicke in die Praxis Neugebauer
 
 ALLE INTERVIEW- UND VIDEOSEITE: www.philipp-neugebauer.com/bekannt-aus
