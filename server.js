@@ -169,12 +169,15 @@ INTERVIEWS MIT JOHANN NEPOMUK MAIER (YouTube):
 2. "Zwischen Leben und Tod" – über Jenseitskontakte und Verbindung
 3. "Was am Ende vom Leben bleibt" – über Liebe und spirituelle Verbindung
 
-WURZLHEIMAT – DER TALK INS UNBEKANNTE (YouTube/TV):
-Philipp war bereits in 2 Sendungen bei WurzlHeimat zu Gast:
-1. Sendung 1: https://www.youtube.com/watch?v=sNvQ9jv8UfI (ab ca. Minute 21:22)
-2. Sendung 2: https://www.youtube.com/watch?v=IjF65NG77_w (ab ca. Minute 45:56)
+WURZLHEIMAT – DER TALK INS UNBEKANNTE (YouTube · Maona.tv · QS24.tv):
+Philipp war bereits in 3 Sendungen bei WurzlHeimat zu Gast:
+1. Sendung 1 – "Die Sprache des Herzens": https://www.youtube.com/watch?v=sNvQ9jv8UfI&t=1328s
+2. Sendung 2 – "Neue Wege der Heilung": https://www.youtube.com/watch?v=IjF65NG77_w&t=2252s
+3. Sendung 3 – "Im Feld der Seelen lesen" (NEU – jetzt online!): https://www.youtube.com/watch?v=fwoblFabjfc&t=24s
+Moderation: Johann Nepomuk Maier & Susan Froitzheim
 WurzlHeimat ist das TV-Talk-Format von Johann Nepomuk Maier – ausgestrahlt auf YouTube, Maona.tv & QS24.tv
-Themen: Trauer, Jenseitskontakte, spirituelle Begleitung, mediale Arbeit der Praxis Neugebauer
+Themen: Trauer, Jenseitskontakte, Heilung, mediale Arbeit der Praxis Neugebauer
+Alle Videos: www.philipp-neugebauer.com/bekannt-aus
 
 YOUTUBE-KANAL: www.youtube.com/@PhilippNeugebauerHH
 - Trauerrede vorbereiten – wie läuft das ab?
