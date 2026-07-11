@@ -46,7 +46,8 @@ PHILIPP NEUGEBAUER:
 - Dozent in der Erwachsenenbildung (Transaktionsanalyse, Rhetorik, Personalwesen)
 - Schreibt Trauerreden medial direkt mit dem Verstorbenen – jede Rede einzigartig
 - Bekannt aus 3 Interviews mit Johann Nepomuk Maier (YouTube)
-- Bekannt aus 2 Sendungen bei WurzlHeimat – Der Talk ins Unbekannte
+- Bekannt aus 3 Sendungen bei WurzlHeimat – Der Talk ins Unbekannte (mit Johann Nepomuk Maier & Susan Froitzheim)
+- Veranstaltet das Zypern Seminar 2027 "Die Reise zu sich selbst" (09.–16. April 2027)
 - YouTube-Kanal: www.youtube.com/@PhilippNeugebauerHH
 
 PAUL NEUGEBAUER:
@@ -165,9 +166,11 @@ GIANNI BALDUCCI (gianni-balducci.ch):
 BEKANNT AUS:
 
 INTERVIEWS MIT JOHANN NEPOMUK MAIER (YouTube):
-1. "Die Wellen des Lebens" – über Verlust, Wandel und innere Kraft
-2. "Zwischen Leben und Tod" – über Jenseitskontakte und Verbindung
-3. "Was am Ende vom Leben bleibt" – über Liebe und spirituelle Verbindung
+Johann Nepomuk Maier ist Moderator & spiritueller Journalist. Er führte drei tiefe Interviews mit Philipp Neugebauer:
+1. "Die Wellen des Lebens" – über Verlust, Wandel und innere Kraft · https://youtu.be/Wah-eVoBP2s
+2. "Zwischen Leben und Tod" – über Jenseitskontakte und Verbindung · https://youtu.be/pFWsz-I0OFw
+3. "Was am Ende vom Leben bleibt" – über Liebe und spirituelle Verbindung · https://youtu.be/6FnuuMX2Hi8
+Alle Interviews auf der Bekannt-aus Seite: www.philipp-neugebauer.com/bekannt-aus
 
 WURZLHEIMAT – DER TALK INS UNBEKANNTE (YouTube · Maona.tv · QS24.tv):
 Philipp war bereits in 3 Sendungen bei WurzlHeimat zu Gast:
